@@ -1,0 +1,5 @@
+# Musafir Cafe’s Most Painful Truth | Divya Jain
+
+Source: https://www.youtube.com/shorts/QPesmeTbqyk (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] कुछ relationships खतम हो जाती हैं, लेकिन कुछ relationships finished नहीं हो पाती और मुसाफिर काफिर शायद इसी feeling को beautifully capture करते हैं कभी-कभी relationship end हो जाती है, आप move on हो जाते हो, नई life बन जाती है, नई लोग में जाते हैं, somewhere एक question रह जाता है, what if हमने थोड़ा और try किया होता, what if timing different होती What if हमने उस वक्त एक दूसरे को better समझा होता और शायद इसलिए कुछ लोग सालो बाद भी याद आते हैं Because you want them back But because their story with you never got the ending that you imagined And unfinished relationship का सबसे difficult part ये है कि आपको हमेशा पता ही नहीं होता That you're missing the person Yes, possibility को जो उसके साथ कभी real ना हो पाई मेभी अप्लोजर का मतलब ये नहीं कि वो परसन बापस आ जाए मेभी अप्लोजर का मतलब है एक्सेप्ट करना कि कुछ स्टोरी इस बीटिफल होती हैं इवन वें देरों गेती एंडिंग आपस आजाए

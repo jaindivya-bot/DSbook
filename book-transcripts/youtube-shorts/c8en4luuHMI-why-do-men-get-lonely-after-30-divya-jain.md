@@ -1,0 +1,5 @@
+# Why Do Men Get Lonely After 30 | Divya Jain
+
+Source: https://www.youtube.com/shorts/c8en4luuHMI (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Nobody tells men how difficult friendship becomes after 30. School के friends busy हो जाते हैं, college के friends दूसरी city में शिफ्ट हो जाते हैं. Sab के शादी हो जाती है, career बहुत डिमांडिंग हो जाते हैं and suddenly, the people that you were seeing every day become people that you text. Bro, अब मिल रहा है? And the strange thing is, men don't talk about loneliness. They just get used to it. वो friends के साथ महीनों में एक बार मिलते हैं डिनर करते हैं, तीन घंटे हसते हैं और फिर घर वापस चले जाते हैं But that one evening may have been exactly what you needed So if you have a friend you've been meaning to call, call him किसी reason का वेट मत करो, बर्टे का वेट मत करो, कुछ गलत होने का वेट मत करो क्योंकि कभी-कभी friendships खतर नहीं होती बस लाइफ इतनी बिजी हो जाती है कि हम उसे मिंटेन करना भूल जाते हैं
