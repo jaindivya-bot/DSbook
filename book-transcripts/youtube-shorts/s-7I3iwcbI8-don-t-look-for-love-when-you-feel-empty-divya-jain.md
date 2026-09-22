@@ -1,0 +1,5 @@
+# Don’t Look For Love When You Feel Empty | Divya Jain 
+
+Source: https://www.youtube.com/shorts/s-7I3iwcbI8 (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Never go grocery shopping when you're hungry. पता है क्यों? Because you're gonna end up picking all the wrong things. Chips, chocolate, cookies, जिसके कोई जवरत नहीं थी. और relationships में भी exactly यही होता है. जब आप life में सिरफ यही सोच रहे होते हो, मुझे प्यार चाहिए, बस किसी का साथ चाहिए. तब आप प्यार नहीं ढून रहे होते हो, आप अपनी loneliness का solution ढूनते हो और इसी desperation में हम गलत लोगों को भी right समझ लेते हैं Red flags ignore कर देते हैं और फिर उसी इंसान को प्यार करने की कोशिश करते रहते हैं इसलिए पहले अपनी life को complete बनाओ अपनी peace ढून दो, अपना purpose बनाओ खुद के साथ खुश रहना सीखो, जैसे पहले एड़ भर के ग्रोसरी शॉपिंग करते हो, वैसे ही पहले अपनी लाइफ को एमोशनली फुल करो, फिर लग दून दो, because the right person is pound by a full heart, not a desperate one.

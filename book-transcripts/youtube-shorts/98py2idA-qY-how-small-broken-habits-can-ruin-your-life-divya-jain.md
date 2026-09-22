@@ -1,0 +1,5 @@
+# How Small Broken Habits Can Ruin Your Life | Divya Jain   
+
+Source: https://www.youtube.com/shorts/98py2idA-qY (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] 1990s में, New York City में crime बहुत बढ़ गया था. सबको लगा, the police is gonna go after the criminals. पर उन्होंने पहले city को साफ करना चालू किया. Broken windows repair की, graffiti हटाई, subways clear किये, and the people started saying, इतना crime हो रहा है, and आपको सफाई लगी है. लेकिन उन्होंने एक simple बात समझी. जब छोटी छोटी चीजे टूटी हुई छोड़ देते हैं, then you're sending a simple message. यहां किसी को कुछ फरक नहीं पड़ता. और धीरे-धीरे, people start breaking more rules. हमारी life में भी ऐसी ही broken windows होती है. एक उन्मेंग बेड, एक मैसी desk, और वो एक काम जो आप महीनों से पुस्पोन कर रहे होते हो यह छोटी-छोटी चीजे आपके दिमाग को एक सिगनल देती है सब चलता है So honestly, stop, fix those broken windows because that will transform your life

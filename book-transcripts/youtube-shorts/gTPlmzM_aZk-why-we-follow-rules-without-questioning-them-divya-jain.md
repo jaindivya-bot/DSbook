@@ -1,0 +1,5 @@
+# Why We Follow Rules Without Questioning Them | Divya Jain
+
+Source: https://www.youtube.com/shorts/gTPlmzM_aZk (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] So have you heard of the monkey ladder experiment? इस experiment में they took five monkeys and they put them in a room और ladder के उपर बनानास टांग दिये गए जब भी कोई monkey बनानास लेने जाता बाकी monkeys को ठंडे पानी से बिगा दिया जाता था कुछ टाइम में monkeys ने एक रूल बना लिया जो भी ladder पे चड़ेगा उसे रोब दो बात में सारे original monkeys replace कर दिये और ठंडा पानी डालना भी बंद हो गया फिर भी कोई monkey ladder पर नहीं चड़ता था क्यों? क्योंकि उन्हें reason पता नहीं था, सिर्फ rule पता था और कभी-कभी society में भी यही होता है हम बहुत सी चीजे सिर्फ इसलिए follow करते हैं क्योंकि हमेशा ऐसे ही होता है ना लेकिन हर tradition, हर belief और हर rule को बिना सोचे follow करना ज़रूरी नहीं होता कभी-कभी progress एक सवाल से शुरू होती है हम ये कर क्यों रहे हैं? Do we know? Do we care? Does it make any sense today?

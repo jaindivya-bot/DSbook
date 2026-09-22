@@ -1,0 +1,5 @@
+# Your Happiness Is Hidden In Helping Others | Divya Jain 
+
+Source: https://www.youtube.com/shorts/AvdDfSLTzgA (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Have you heard of this experiment called the balloon experiment? एक प्रोफेसर ने अपनी ग्लास में हर श्टूटन को एक बलून दिया और कहा इस पर अपना नाम लिग दो and leave it in the hallway. फिर सब को पांच मिनिट दिये कि अपना बलून ढून के लाओ. सब भागने लगे, एक दूसरे से टकराने लगे. लेकिन almost किसी को भी अपना बलून नहीं मिला फिर प्रोफेसर ने एक रून बदल दिया He said, जो बलून आपको सबसे पहले मिले उसका नाम पढ़ो और उसके ओनर को दे दो And literally in two minutes, every student had their own balloon back और यही लाइफ का सबसे बड़ा सच है जितना हम सिरफ अपनी happiness के पीछे भागते हैं, उतना ही वो दूर लगती है लेकिन जब आप किसी और की life थोड़ा सा बेटर बना देते हो तो जिन्दगी किसी ना किसी तरीके से आपको भी खुजी वापस दे देती है कभी-कभी your happiness is hidden in helping someone else find theirs
