@@ -1,0 +1,5 @@
+# Why Gen Z Struggles in Corporate | Divya Jain
+
+Source: https://www.youtube.com/shorts/2cs68yaQVXU (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] तरी रीजन्स वाई जन्जी किनोट सवाइब क्रॉपरेट सबसे पहला है वी रूल्स होते हैं, एक सिस्टम होता है, रेगुलेटे होता है The Gen Z today are free-spirited, they need freedom, they need the ability to explore and the corporate has them constricted, they have them squeezed The second reason is because their multi-skills are, whether it's tech, whether it's emotional and their best performance is when you have your different skills together but the corporate puts you in a bucket that you can do evil marketing, finance or HR कर सते हो and the third reason is because they are dreamers they look at creating a world that does not exist corporate who he karta hai jo 10 20-100 से होता हुआ है accounting for dreams for new innovation is very very hard and that again is something the gen z is just not ready for

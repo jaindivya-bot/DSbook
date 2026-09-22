@@ -1,0 +1,5 @@
+# 3 Ways Women Test Men | Divya Jain
+
+Source: https://www.youtube.com/shorts/GSp4M6n8Q_A (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] works that a woman will test his man without really saying it first is the emotional pressure test when she will fight, get irritated, her mood will be off but it's not really to fight but it's just to see can you handle her, can you be gentle with her the second one is the availability test when she will ask you to ask you to get her at all points, you will pick up her, you will see her and this is a tricky one because she wants you to be there But your life needs to be important enough that you are purposeful So you can't turn everything back to it, you can't run away from it You need to be able to balance it And third most importantly is the consistency test That what you're saying, what you're doing You're actually doing If you actually promise something, will you really carry that out?

@@ -1,0 +1,5 @@
+# 3 Habits to Get Your Life Back on Track | Divya Jain
+
+Source: https://www.youtube.com/shorts/I7dGJd0i6mM (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] April भी almost खत्म होने वाला है and unfortunately 97% लोग वो follow नहीं कर रहे हैं जो उन्होंने New Year पे decide किया था Not going gym anymore, no money not growing अगर तुम्हें लग रहा है तुम off track हो चुके हो तो all time waste मत करो, बस ये 3 habits follow करो और खुद को वापस track पर ले आओ Number 1, silence रोज 10 minutes, phone बंद distraction से दूर, सिर्फ तुम एक diary और तुम्हारे thoughts ये तुम्हारी overthinking और stress को control करेगा Number 2, visualization अकेला बैठो, आखें, बंद करो और visualize करो तुम्हारी ideal life कैसी होगी, तुम क्या बनना चाहते हो, कैसे जीना चाहते हो Number 3, affirmation रोज खुद से बोलो, I am calm, I am focused, I am successful जो तुम रिपीट करते हो, वही तुम बनने लगते हो. 21 दिन तक, no distraction, full focus. और फिर देखना, तुम्हारी लाइफ धीरे-धीरे ट्रैक पर वापस आने लगेगी.

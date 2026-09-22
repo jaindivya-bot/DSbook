@@ -1,0 +1,5 @@
+# 3 Brutal Truths That Can Change Your Life | Divya Jain 
+
+Source: https://www.youtube.com/shorts/KIq5QN_QNlc (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] जिन्दगी तब तक नहीं बदलेगी, जब तक तुम ये तीन brutal truths accept नहीं करते. Number 1. कोई भी तुम्हारी help करने नहीं आने वाला, तुम्हें लगता है जो तुम्हारे close हैं. Parents, दोस्त, रिष्टेदार, वो हर बार तुम्हें बचाने आ जाएंगे, पर उनकी भी अपनी life है, अपनी problems है, end में तुम्हें खुद ही problems को face करना पड़ेगा. Truth No.2, लोग सिर्फ results को respect करते हैं. तुम सोचते हो लोग तुम्हारी struggle समझेंगे? बिल्कुल नहीं. दुनिया तब तक इग्नोर करती है, जब तक result सामने नहीं आता ये जूट है कि society तुम्हें दबा रही है सच ये है कि तुमने अभी तक कुछ ऐसा किया ही नहीं, जो इग्नोर न हो सके Truth No.3, Change Time से नहीं, काम से आता है टाइम सिर्फ गुजरता है, चेंज काम करने से आता है. जब तुम बेक्टर चीजें क्रिएट करते हो, तभी रियल हीलिंग होती है. So stop thinking, stop wasting, start making.

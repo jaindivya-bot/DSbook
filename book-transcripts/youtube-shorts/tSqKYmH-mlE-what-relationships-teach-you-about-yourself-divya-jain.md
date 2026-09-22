@@ -1,0 +1,5 @@
+# What Relationships Teach You About Yourself | Divya Jain
+
+Source: https://www.youtube.com/shorts/tSqKYmH-mlE (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] As an 18 or 20 year old, I think it's the time that you want to explore and figure out कि आपकी लिक्स और दिसलिक्स कैसी है. You might be a vegetarian, आपको शायद इंडिन खाना पसंद है, but when you start tasting different cuisines, to try and really know what you genuinely prefer or not. I think even in relationships, you want to figure out what is out there, what are the different kind of people. In a relationship में आप दूसरे आदमी को नहीं डिसकावर करते हैं, अपने आप को भी डिसकावर करते हैं and when you have clarity on who you are what you want in your life and how you see it progressing it's not about switching and wasting someone's life but figuring out the right fit for you लेकिन अगर वो पर्फेक परसन आजाता है and you have that click then nothing else matters you just go all in
