@@ -1,0 +1,5 @@
+# 3 Things That Make Adult Friendships So Important | Divya Jain Podcast | Divya Jain
+
+Source: https://www.youtube.com/shorts/Ic3tG5m_zDI (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Three things you do with your adult friends that make them so important to your life. First of all, is shared interest. You do similar activities with your adult friends that you like to each other. It could be hiking, it could be going for a walk, it could be cooking, but actually your interest is aligned. The second thing is sharing your problems and coming up with solutions. They know you, but they don't have didn't have much baggage. So when you come up with your problems or issues that you're facing, you can get honest answers, honest feedback that can help you get through any phase, any problem that you're facing. Third is shared responsibilities. You're all busy, you all have a lot of responsibilities and your adult friends can come together to help you when it's hard. बच्चो की रर करना है, कुछ भी करना है, you can share responsibilities to ensure that your life goes ahead soon.

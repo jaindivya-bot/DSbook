@@ -1,0 +1,5 @@
+# How to Survive Corporate Politics Smartly | Divya Jain
+
+Source: https://www.youtube.com/shorts/ZeeYcW8898k (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Interesting question, how do you navigate power games when you've just started in a corporate hierarchy? It's very difficult to stay away from things and honestly, if you're outside, then chances are you will miss out on opportunities. What you need to understand is who are the people who are like you, whom you get a vibe with, whom you get a mindset with, and you need to start talking to them. international relationship of work. Where you can actually share your issues, problems, hopes, dreams. And then work as a team to help each other up. And if there are games to work, if there are people who are playing politics, then the best thing is to stay out of it. But if you work in the future, then it's great to have certain friends who will have your back and help you navigate.

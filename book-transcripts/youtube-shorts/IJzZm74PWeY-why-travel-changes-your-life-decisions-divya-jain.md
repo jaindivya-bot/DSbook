@@ -1,0 +1,5 @@
+# Why Travel Changes Your Life Decisions | Divya Jain 
+
+Source: https://www.youtube.com/shorts/IJzZm74PWeY (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Have you ever noticed that people will come back from a long trip and suddenly make changes to their life? They'll quit their job, they'll enter a new relationship, new city will shift in a new city, or finally, they'll start that one thing that they've been postponing forever. And you wonder why this happens. Because honestly, travel is not just showing you new places, it's actually changing your perspective on life. When you're in your normal life, in your normal routine, में होते हैं, आपको रियलाइस ही नहीं होता है कि आप कैसे अपनी लाइफ जी रहे हो and अचानक when you're out there traveling you're able to compare and understand what you really want. Travel clarity देता है, वो noise को अटा देता है and you understand your real wants, feelings and makes a lot of clarity on your future decisions.
