@@ -1,0 +1,5 @@
+# The Heartbreak That Changes A Man Forever | Divya Jain 
+
+Source: https://www.youtube.com/shorts/uGLHq_j-4HM (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] You know, a man will cry for a woman only once in his life, तो एक पार, और उसके बाद, लब ज़स ही इते हैं. It's not softer, it's not deeper, तोड़ा जादा कोर्ड, तोड़ा स्मार्ट और थोड़ा और शाफ. जैसे उसके अंदर वो फिलें अब वापस नहीं आएगी. It doesn't just hurt emotionally, यह उसके इनोसंस को मार देता है. Honestly, it's a clean execution of the boy he used to be. And you know, those tears, उस लड़की के लिए नहीं होते, it's that version of him that believed that he loved unconditionally. और वो वो वर्जिन साइलेंटली मर जाता है. So, अगर आप कभी भी किसी आदमी से मिलो, जो थोड़ा डिस्टंस है, थोड़ा कुल्ड है, और emotionally calculated है Ask him what happened with you और आपको पता चलेगा कि वो लड़का जो अब भी प्यार से रोया नहीं था उसे एक मर्द ने रिप्लेस कर दिया जिसने खुद से promise किया Never again

@@ -1,0 +1,5 @@
+# Can Good People Really Succeed In Life? | Divya Jain  
+
+Source: https://www.youtube.com/shorts/tWwOc2GQ30Q (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] You know the people who lie, manipulate, use others, they often reach the top first. And then you start thinking, क्या अच्छा इंसान अच्छी लाइफ में आगे बढ़ सकता है? सच ये है कि कई बार सेल्फिश लोग जल्दी जीट जाते हैं क्योंकि उन्हें नो बोलने में गिल्ट नहीं लगता, लोगों को यूस करने में हज़िटेशन नहीं होती और सिरफ अपना फायता देखना आता है लेकिन देर्स बिग डिफरेंस यह सक्सेस मिलना और रिस्पे कमाना उनों अलग अलग चीज़े हैं पावर खरीनी जा सती है, मानी कमाया जा सकता है लेकिन trust and character you will earn कर सकते हो. इसले life का lesson ये नहीं है कि बुरा इंसान बन जा. lesson ये है कि आप इतना भी अच्छा मत बनो that you get used. kind रहो, honest रहो, लेकिन strong भी रहो. क्योंकि दुनिया में सबसेट dangerous combination एक अच्छा इंसान नहीं. एक अच्छा इंसान जो अपनी बाउंडरीज जानता है

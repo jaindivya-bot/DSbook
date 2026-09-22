@@ -1,0 +1,5 @@
+# How Belief Can Change Your Future | Divya Jain 
+
+Source: https://www.youtube.com/shorts/H_JXwASh8v8 (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Have you heard of the pig million effect? ये एक psychological theory है जो खहती है लोग अकसर उतना अच्छीव करते हैं जितना उनसे expectation रखी जाती है एक famous study में teachers को बताया गया कि कुछ students exceptionally gifted है reality, वो students बिलकुल normal थे लेकिन क्योंकि teachers उनसे जादा expect करने लगी उन्हें जादा encourage किया, जादा opportunities थे कुछ टाइम बाद उनकी परफॉर्मंस सच में बेटर हो गए सिरफ इसलिए क्योंकि किसी ने उन पर बिलीफ किया और शायद इसलिए एक इनसान का बिलीफ दूसरे इनसान की जिन्दकी बदल सकता है कभी-कभी टैलेंट से पहले ट्रस की ज़रूरत होती है और इसी वजय से अपने आसपास ऐसे लोग रखो जो तुमारी लिमिटेशन नहीं, तुमारी पॉसिबिलिटीज दिखाएं. याद रखना, the people who believe in you don't just change your confidence, sometimes they change your future.

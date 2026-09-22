@@ -1,0 +1,5 @@
+# The Hedgehog's Dilemma Explains Every Relationship | Divya Jain 
+
+Source: https://www.youtube.com/shorts/NsBoZrE98Hg (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Have you heard of the hedgehog's dilemma? ये एक psychological concept है जो कहता है हम सब प्यार भी चाते हैं और उसी प्यार से कभी-कभी डरते भी हैं विंटर में hedgehog एक दूसरे के पास आते हैं ताकि उन्हें वांप मिल सकें लेकिन जैसी वो जादा पास आते हैं उनकी एक दूसरे को चुबने लगते हैं इसलिए वो दूर चले जाते हैं पर ठंड लगती है तो दूबारा पास आ जाते हैं और यही साइकल चलता रहता है क्या यह बिल्कुल रिलेशनशिप्स जैसा नहीं है हम closeness चाहते हैं लेकिन जब कोई बहुत close आजाता है तो rejection का डर, betrayal का डर या hurt होने का डर हमें इचे खीश लेता है एक बात याद रखना that real love का मतलब perfect इंसान ढूड़ना नहीं होता real love का मतलब है किसी की काटू के साथ भी उसके पास रहना सीखना बेकर फ्रेफेश conviction रेबेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रेवाब रे�
