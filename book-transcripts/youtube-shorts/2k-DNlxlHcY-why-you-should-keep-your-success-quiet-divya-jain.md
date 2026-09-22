@@ -1,0 +1,5 @@
+# Why You Should Keep Your Success Quiet | Divya Jain
+
+Source: https://www.youtube.com/shorts/2k-DNlxlHcY (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] इंडियन क्राब मेंटालिटी डेफिनिटली इस एधिनुटी इस एधिनुटी आपको यह फरक नहीं पड़ता कि आप कितना अच्छा कर रहे हो बट कोई और आपसे जादा अच्छा तो नहीं कर रहा है यह रोके इन यह अर मारुती लेकिन जिस दिन वो अपनी स्कोडा ले आएगा आपका फ्रेंड या आपका नेवर तब कही न कहीं आप फीलिंग आ जाती है कि मुझे भी कुछ अच्छा करना है And you start pulling each other down. So it's very inbuilt. We come from a scarcity mindset. जहां पे हमें कम की आदत थी. तो किसी को अच्छा करते हुए देख, हम अफेक्टेड हो जाते हैं. So I think very important to understand it and move away from it. गर इसका आंसर के विल एक है, which is to wear blinders. ना आगे देखे, ना पीछे देखे, अपना काम खुद करे. जब आप आगे बढ़ रहे हो, keep it quiet. बहुत जादा अपनी सक्सेस को शेर करने की ज़रत नहीं है अपनी सक्सेस को अपने तक रखो अपनी ख्लोस्ट वांच तक शेर करो
