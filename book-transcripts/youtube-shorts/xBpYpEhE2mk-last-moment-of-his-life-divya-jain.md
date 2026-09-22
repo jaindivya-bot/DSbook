@@ -1,0 +1,5 @@
+# Last Moment Of His Life | Divya Jain
+
+Source: https://www.youtube.com/shorts/xBpYpEhE2mk (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] अगर शादी वादी और खुशी के टाइम में आप ना भी हो तो कोई फरक नहीं पड़ता बट वन आप गाइस डाउन, यू मस्ट पी देर अज लीडर विद इंट teammates are like it's your world जब आप operation में जाएंगे आप वो एक ही sleeping bag में आपने रहना है आपने वो ही पूरी खानी है जो वो खा रहा है there is no pay grade, there is no caste system he can be a sardar, he can be a muslim, he can be a christian, he can be a hindu आप जब लड़ाई लड़ रहे हो, वो आपकी जान बचा रहा है आप उसकी बचारे, your lives are intertwined and it's not your mother, it's not your father, brothers, sisters, cousins, कोई भी नियोता होदर and being an officer and a leader of that team for a jawaan or for a normal guy, the commanding officer or the team commander or this, they are like his everything. That is the kind of camaraderie you have in army.
