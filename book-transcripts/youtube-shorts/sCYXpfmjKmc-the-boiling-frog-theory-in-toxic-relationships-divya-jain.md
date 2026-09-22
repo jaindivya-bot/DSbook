@@ -1,0 +1,5 @@
+# The Boiling Frog Theory in Toxic Relationships | Divya Jain 
+
+Source: https://www.youtube.com/shorts/sCYXpfmjKmc (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Have you ever heard of the boiling frog theory? अगर आप एक frog को directly गरम पानी में डाल दो, तो वो immediately बहर कुछ के आ जाएगा. But अगर आप उसे ठंडे पानी में डाल दो, और टेमपरिचर धीरे धीरे धीरे बढ़ाओ, तो वो adjust करता रहेगा, करता रहेगा, करता रहेगा, and by the time he realizes it, it'll be too late, he'll be fried. Similarly, हमारी life में भी ऐसे ही होता है. आप कभी certainly toxic situation में नहीं आते हो. आप धीरे धीरे उसमें घुसते हो. शुरू में छोटी छोटी चीजे होती है. थोड़ा सा disrespect, छोटे red flags, things you ignore and you think, इतना भी serious नहीं है. पर धीरे धीरे वो normal लगने लगता है और तब तुम realize करते हो तुम्हें already ओस situation की आदत हो चुकी होती है इसलिए problem यह नहीं है that you didn't see the danger problem is कि आप उसे tolerate करना सीख जाते हैं
