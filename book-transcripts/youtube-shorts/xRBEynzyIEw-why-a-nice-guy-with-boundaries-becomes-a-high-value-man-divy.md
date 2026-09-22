@@ -1,0 +1,5 @@
+# Why A Nice Guy With Boundaries Becomes A High Value Man | Divya Jain
+
+Source: https://www.youtube.com/shorts/xRBEynzyIEw (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] So you know a nice guy with boundaries is one of the rarest men on earth और इसलिए एक nice guy अकसर high value man बन जाता है क्योंकि उसने life में rejection देखा होता है ignore होना देखा होता है undervalued feel करना देखा होता है और ये सब उसे mature बना देता है जब दूसरे लोग validation के पीछे भाग रहे होते हैं वो खुद पर काम कर रहा होता है, skills बिल्ड कर रहा होता है, career बनाता है, character बिल्ड करता है, लेकिन एक point के बाद उसे समझ आ जाता है कि सिर्फ nice होना enough नहीं है, respect चाहिए तो boundaries भी चाहिए, kindness के साथ confidence भी चाहिए, और empathy के साथ standards भी और जिस दिन एक nice guy ये सीख लेता है लोगों को खुश करने के बजाए खुद को respect करना उस दिन वो high value man बन जाता है क्योंकि high value man selfish नहीं होता बस वो इतना mature होता है कि दूसरों को priority देने से पहले खुद को ignore करना बंद कर देता है

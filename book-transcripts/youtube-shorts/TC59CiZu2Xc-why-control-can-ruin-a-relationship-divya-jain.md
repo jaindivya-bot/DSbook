@@ -1,0 +1,5 @@
+# Why Control Can Ruin A Relationship | Divya Jain
+
+Source: https://www.youtube.com/shorts/TC59CiZu2Xc (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Have you seen the movie Obsession? उसकी सबसे important lesson ये है The fastest way to ruin a relationship is to get exactly what you want सुनने में strange लगता है क्योंकि हम सब सोचते हैं काश मेरा partner मेरी हर बात मान ले काश वो बिलकुल वैसे ही behave करे जैसा मैं चाहता हूँ लेकिन problem वहीं से start होती है जिस दिन आपका partner आपकी हर बात सुनने लगता है, उस दिन उसकी individuality धीरे धीरे खत्म होने लगती है, उसकी free will, उसकी freedom, उसकी अपनी identity और फिर relationship partnership नहीं रहता, वो एक project बन जाता है, जहां focus love पर नहीं control पर होता है, healthy relationships में differences होते हैं, disagreements होते हैं, और कभी-कभी friction भी होती है, करेगा, तो आप ग्रो कैसे करोगे, नए परस्पेक्टिव कैसे सीखोगे, डिफरेंसे के साथ जीना कैसे सीखोगे, रियल लव is not finding someone who obeys you, रियल लव is learning how to respect someone who thinks differently from you.

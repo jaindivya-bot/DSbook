@@ -1,0 +1,5 @@
+# The Dark Side Of Manifesting The Perfect Partner | Divya Jain
+
+Source: https://www.youtube.com/shorts/VNDTBtF0nLw (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] Everyone is talking about the movie, Obsession. But nobody is talking about its deepest lesson. The dark side of manifestation. हमसे हमेशा कहा जाता है, visualize it, manifest it. Go get exactly what you want. लेकिन, what if, जो आप चाहते हो, वही problem बन जाए. Imagine your partner becomes exactly the person you wanted. No disagreements, no pushback, no different opinions. शुरू में पर्फेक लगेगा, but slowly, relationship अपनी soul लूस करने लगेगा. क्योंकि love control नहीं होता, love होता है तो अलग लोग, जो differences के साथ भी एक दूसरे को choose करते हैं. अगर partner सिर्फ वही बन जाए जो आप चाहते हो, तो आप relationship में नहीं हो, आप अपनी fantasy के साथ हो. And maybe that's why obsession feels so disturbing, because sometimes life की biggest blessing होती है, not getting what you want.
