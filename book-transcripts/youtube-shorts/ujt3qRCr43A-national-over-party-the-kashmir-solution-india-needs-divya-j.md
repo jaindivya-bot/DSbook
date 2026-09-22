@@ -1,0 +1,5 @@
+# National Over Party: The Kashmir Solution India Needs | Divya Jain
+
+Source: https://www.youtube.com/shorts/ujt3qRCr43A (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] क्या आप कश्मीर को इंडिया का नहीं चाहते हैं? बहुत सारी चीज़ें हैं जो कश्मीर से रिलेटेड हैं हम उस पे दो मत हो यी नहीं सकते हैं इडिविशिबल दाइट हमारे कश्मीर के दस भी इशूज ऐसे ना हो इस पे फूरा हिंदुस्तान एकमत होना चाहिए एक 10-point agenda होना चाहिए and that should be based on nationalism, रास्टरवार, we are all Indians, we all want Kashmir to be part of India and to do that, these are एक, दो, तीम, चार, पांचे, साथ, आट, नौ, दस यह 10 चीजें पॉमन है, it should not be the ruling party is saying this and the non-ruling party will suddenly come and say that just because the ruling party लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे लेखे �
