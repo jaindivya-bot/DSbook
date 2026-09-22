@@ -1,0 +1,5 @@
+# Indian men are helpless! | Divya Jain
+
+Source: https://www.youtube.com/shorts/1kluOSItWSE (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] यहाँ भाई तो देगा So this is a case from Bihar from the woman's side who got married to this man just about a year ago बहत ही छोटी सी family है hang-to-mouth family है Now the woman says that she will not stay with his family and this is exactly what the conversation is about she's saying की तू अपनी फाई के साथ कोई भी रिष्टा नहीं रखेगा and now the only mistake that this man has committed is that she says की तू अपनी भाई को ऐसा बोल सती हो क्या यही audio यही अब्यूस एक आदमी अपनी वाइफ को होल कर रहा हता हूं तो उसकी वाइफ के पास बहुत सारे कानून हैं उसको सीउ करने के लिए या उसको पनिश करने के लिए बप्रेवर्स पर bisschen बप्रेवर्स पर फरुबाब या रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रवा रव
