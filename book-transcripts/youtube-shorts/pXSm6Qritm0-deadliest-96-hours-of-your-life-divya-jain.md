@@ -1,0 +1,5 @@
+# Deadliest 96 hours of your life | Divya Jain
+
+Source: https://www.youtube.com/shorts/pXSm6Qritm0 (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] वे लेवेश रावाव राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। राव। � na pou oh my God like an automaton whatever the instructor is telling you to do it you are in a team every team of six people or eight people are given a board the board weight is about 250 kilos you have to keep the board on top all the time run on the beach with the board and then launch the board to the sea and then do pedaling so these are all interplay of all this thing which you will build up your psychology your mindset there bills up strengthens to take any adverse condition situations so the whole idea of hell week is it challenges your your mental barriers lead to your physical conditioning so that is the whole challenge of this entire तरही वी
