@@ -1,0 +1,5 @@
+# How To Know if You are not Wasting Another year of your Life | Divya Jain
+
+Source: https://www.youtube.com/shorts/5flCuP6aTXE (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] दस लाक में से अगर हजार की ही लिस्ट आनी है, उसमें लॉफ प्रोबिलिटी क्या कह रही है? 0.1% है. लोगों को अपने ले होना चीह है. So, you know, 12th fail के बाद, I think हर UPSC aspirant अपनी श्रद्धा डूल रहा है. Having a lab interest, is it something जो आपकी preparation में, exam में impact करता है? Leader has to inspire. जो बचियां हैं आप उनको पढ़ाओ तो वो का नाम रोशन कर सकती हैं जब एक सीनियर लेवल का अधिकारी जब जाता है तो लोगों का एक ट्रस्ट फैक्टर बहुत बिल्ड होता है एक administrator को अगर लोगों से connect होना है तो language सीखनी जरूरी है everything is good here and not everything is bad outside अगर आपका suppose 6-7 attempt में भी अगर नहीं हो रहा है so that seriously needs an O, you know, a thinking at your level that am I doing the right thing or is it the only option available to me?
