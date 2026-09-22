@@ -1,0 +1,5 @@
+# Painful Meditation | Divya Jain
+
+Source: https://www.youtube.com/shorts/WD2_ef3sA-Q (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] जब ममझेटेट करते हैं, I feel so heavy hair in my heart, I feel so heavy in my head, ऐसा होता है कि मैं meditate कर रहे हूं and I started crying all of the sudden, I'm just crying, मुझे हां बहुत pain हो रहा है, तो मैंने भू समझा है कि हमारी लाइफ में बहुत सारी ऐसे चीजें, day in day out होती रहती हैं, जिसने कुछ emotions ignite करें मेरे अंदर, maybe shame का, maybe guilt का, maybe I felt sorry for myself, maybe I felt hurt और हर बार ऐसा नहीं होता कि मैं अपना हर emotion express कर पाऊंगी but that emotion stays in our body तो ऐसा एक बार, दो बार, तीन बार तो ऐसे बच्चपन से लगा लो कितने emotion हमारे अंगर suppressed रहते हैं तो जब आप पहली बार आख बंद करके अंतर की तरफ अपने जाते हैं, तो वो आपको फील होगा ना, वो दर्ध होगा, रोना आये तो रोले, cry your heart out, क्योंकि कुछ आपको फील हो रहा है और वो सब बेंट आउट हो रहा है, जो आपके suppressed emotion है.

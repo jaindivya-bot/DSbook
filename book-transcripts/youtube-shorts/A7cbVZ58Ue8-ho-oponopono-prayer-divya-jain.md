@@ -1,0 +1,5 @@
+# Ho'oponopono Prayer | Divya Jain
+
+Source: https://www.youtube.com/shorts/A7cbVZ58Ue8 (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] So there is a prayer, Ho Pono Pono, which is having four sentences. I'm sorry, please forgive me. I thank you. I love you. So whenever I write some manifestation, kuch goal में लिखते हूँ, तो मुझे नहीं पता कि मेरे अंदर वो क्या blockages है, energy blockages, जो उस चीज को मेरे पास आने से रोक रहे हैं. क्योंकि if you are writing कि I'll get like 1 crore rupees in next this this this time तो दिमाग में किने negative limiting beliefs होंगे ये नहीं हो सकता है वो नहीं हो सकता है ऐसा कैसे हो सकता है तुम तो ऐसे घर से भी नहीं हो कि जिसको एकदम इतनी opportunities में जाए you don't have so much of connection so I don't know what are the subconscious beliefs I have within myself which are restricting those all things to come to me so I do this hope on a prayer and then I release जब उनोगा हो जाएगा
