@@ -1,0 +1,5 @@
+# 3 Most Important Power Laws for Relationships | Divya Jain 
+
+Source: https://www.youtube.com/shorts/e1BeNpZCuiw (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] From a relationship standpoint, these are the three most important laws from the 48 laws of power. Always, always, always say less than what is necessary. The second is, make people dependent on you. जितना लोग आपके उपर डिपेंगे for their happiness, for their needs, for their prosperity, उतिनी जादा आपको freedom मिलेगी, उतिनी जादा आपको importance मिलेगी. So understand what you can do for people, make sure they are there. Teach them things, don't teach them everything. Be there for people so that they can count on you, lean on you, depend on you. The third most importantly, absence will create respect, absence will create value. हमेशा अवेलबल नही रहो for every message, every call, every meeting. जितना आप अपनी availability को कटेल करोगे, value करोगे, उतना ही लोग आपको value करेंगे

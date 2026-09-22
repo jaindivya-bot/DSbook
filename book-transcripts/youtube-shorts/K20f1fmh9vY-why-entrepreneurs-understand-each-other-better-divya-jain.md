@@ -1,0 +1,5 @@
+# Why Entrepreneurs Understand Each Other Better | Divya Jain
+
+Source: https://www.youtube.com/shorts/K20f1fmh9vY (Divya Jain, YouTube Short). Transcribed locally from audio with Whisper large-v3-turbo (hi); expect errors, no speaker labels.
+
+[0:00] It's the best if an entrepreneur finds another entrepreneur to marry. सबसे इंपोर्टन है कि वो एक दूस्टे को अंडरस्टांड कर सकते हैं. वोही एक्साइटमेंट, वोही जॉए, गेड़िए अन्यु आइडिया, वोकिंग अन्यु प्लान, and most importantly, बिंग रेड़ी फो दी अन्प्रेडिक्टाबिलिटी. आपको पता नहीं है, आज कैसा लग रहा है, कल क्या होएगा, परसो क्या होएगा Next week, आप इस सिटी में रहोगे, आपको बड़े ओफिस के लिए, दिली से गुडगाओ जाना पड़ेगा या किसी और शहर में To have someone who can enjoy that predictability, groom with you, be flexible with you Marrying an entrepreneur will give you that ultimate freedom लेष्छा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद्रावा बाद
